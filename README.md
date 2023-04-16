@@ -1,0 +1,2 @@
+# Gomulu Sistemler
+ Gömülü Sistemler
